@@ -3,4 +3,4 @@
 
 详情帮助文档请看：[帮助文档](https://tudousha.asia/bangzhu)
 
-公众号地址![公众号二维码](assets/your-image-file-name.png)
+公众号地址![公众号二维码](assets/20221123_085003.png)
